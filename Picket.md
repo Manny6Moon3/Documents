@@ -1,0 +1,27 @@
+For starters, they had Merryl Streep in the role of a Cockney sort of Pankhurst throwback, but without the accent. 
+That was a big time conservative middle class stiff-upper-lip thing. The film itself was dour and bleak enough in 
+its atmosphere intending to reconnect our minds to a Turn of the 20th Century period in time, when appropriation of 
+assets seemed to be the main game being played in Burroughs and Districts in any event against one's old Ball and 
+Chain. To be candid, I don't think they quite managed to convey the actual violence perpetrated against women who 
+were fighting for their human rights, before this film was released. It was eye candy nonsense under the script-written 
+auspices of a gag reel like Mary Poppins. Here you have a pish posh Mother of the dynamic duo who won't take Governesses, 
+whilst she is out waving banners and causing a big ruckus in the world of Men, but still to a greater extent essentially 
+a subservient wife. A longsuffering Bobby on the Beat bringing wayward children back to their home address is in 
+contrast to the Police brutality condoned by the fat heads in White Hall. Who wouldn't take such demands as voting at 
+the same age as men and keeping their wages in their own pocket (not their husband's) seriously. Not until a Suffragette 
+went to the Royal Ascot races and threw herself under the trampling hooves of a dappled Andalusian thing, did it begin 
+to affect the SYSTEM. Other than using an over-awed M.S & gentrification into this elite family of Marylebone St being 
+mis-accentuated, I think the girls bearing testimony to how they knew someone who worked in an (old fashioned) laundromat 
+& eventually took seriously ill and died because of working in the bit where one had to breathe in all the airborne 
+reagents used mostly for all the dry cleaning. And she's telling these big-wigs late by proxy through her fellow 
+factory worker friend, because her husband has made her face look like a slapped arse for being in tow or merely 
+having sympathies with this woman's movement. It's the way the men deliberate in Parliament basically to no end. She 
+has her boy taken away from her, forced to live with a friend because of these activities. Lot of Bull administered 
+her at the workplace before she's let go by the top brass, and it's certainly no help that her husband's tapped into 
+all the gossip circles since he works there too. It was all too real. You should watch it. Suffragette. If certain 
+pikestaff welding nutters in charge of unionized resistance and gobsmack results at home (yes, the manager did look 
+more like a blacksmith than a starched Eton collar en-masse proprietor), didn't have their hands ironed by the heroine 
+of the movie. I seriously doubt if I could have gotten the gist of things the way that I did.
+The most candid way of describing a golden girl's granny opting for the 'chomping at the bit' style would be summed up in an attitude like this. 'Let me be allowed to term the position which we assign to a concept either in the sensibility of inoculation, or even in the pure understanding having the ability enabled, of turning a baton of lead into a golden one via particle phase shifting because firing neutrinos and leptons beyond warp speed at a metal do tend to change said metal's innermost nature, through messing about with anionic bonding. In such a like kind of FAUX ALCHEMY even ipso-facto. This is the transcendental place of correct enthronement, with a shining sceptre in King Midas' hand instead of a bedivilled cheat game of billiards holding court for swine at the top of countryside slag-heaps.' And this then annoyed Johnny English a lot, with his Dry Pear Cider County of Devon 
+protectorates wanting to advert from the chance of misrepresentation as COUNTRY BUMPKINS. It was yet another tie-in for bringing the dreamers back down to earth which was understandably amenable to the rest, through its underlying suggestion of taking these things in order. Even though one had to stifle giggles at the way Little Lord Fauntleroy styled out his latent exasperation at the abrupt change of theme. It must be outlined here that earlier on this same English dude had fast cut away from the heavily misapprehensive digressions amongst some of the other acute thinkers, which were put forth as humorous asides, engagingly trippy as treatises put forth for the sole aim of unravelling his thought into a reaction he would presumably gauge, consisting in finer spun augments of the essentially 'eau naturel' libram toting truisms. Which was so obviously a schlocky tactic the others tried to employ since it was suited to the suavity of his voice they were jealous of but certainly could bear with, him being gratingly 
+coherent beyond a shadow of a doubt, and in spite of his youth. Thenceforth they opted for unadulterated SCHEMA to be the main recipe in this food for thought session, as this was proverbially tailored from errantly proliferated mind minceing, jarring paradoxes precluding the purest SYNTHESIS that were stood at that burgeoning stage of being proposed. Where one could only guess at what exacerbated factors of base-10 concealed in coded rhetoric might be used to lend themselves into hardcore scientific doctrines mainly pursuant to mathematical laws alone. But wouldn't help in allowing us to understand what in the name of wonder we're actually doing here. First timer's luck for 'She of the golden hue' seems like poetic justice.
